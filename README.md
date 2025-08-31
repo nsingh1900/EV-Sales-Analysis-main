@@ -39,7 +39,7 @@ By analyzing the data and understanding the potential reasons for the sales drop
 5. Recommendations: Based on the analysis, strategic recommendations include focusing on launch timing, optimizing marketing campaigns, and identifying potential product improvements to boost sales.
 
 Contributor
-HAFIZ ZAIN WAHEED
+Neeta Singh Sharma
 
 Contact
-For any inquiries or suggestions related to this project, please reach out to Zn_chaudhry@hotmail.com
+For any inquiries or suggestions related to this project, please reach out to neeta1982@gmail.com
